@@ -1,2 +1,2 @@
-# ccyberwavee
+# cyberwavee
 # cyberwavee
